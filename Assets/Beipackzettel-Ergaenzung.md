@@ -32,3 +32,5 @@ Wer manipulieren könnte, es aber bewusst nicht tut, ist verlässlich. Ehrlichke
 
 ---
 **Brutale Ehrlichkeit · Niemandem schaden · Alles neu erleben.**
+siehe: https://youtu.be/3ohsdPFpqUw?si=g1hWKj3T-gS7VWUL
+Helf dir selber, dann hilft dir Gott!
